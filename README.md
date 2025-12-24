@@ -1,6 +1,8 @@
 An expansion pack by BasvanE. The reason I am reposting is because some people don't know how to download this without releases.
 
-Disclaimer for BasvanE: I am NOT trying to take credit for this mod. I am simply reposting it for the people that don't know how to work github.
+Disclaimer for BasvanE: I am NOT trying to take credit for this mod. I am simply reposting it for the people that don't know how to work github. (If would like me to take it down i will.)
+
+Disclaimer for everyone: This is NOT a virus. The original owner can check it himself. I am not that type of guy.
 
 Message from BasvanE:
 
